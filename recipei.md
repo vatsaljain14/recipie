@@ -1,0 +1,1 @@
+take  one bowl put some water and boil for one minute after boiling water put some maggie and maggie massala and put gas om low tempreture for 10 minutes and take it out of the bowl and serve into the serving bowl aand injoy your maggie
